@@ -1,4 +1,4 @@
-## é o kozmo
+
 📧 lucasmoraes@alunos.utfpr.edu.br
 
  <div>
